@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tolerance76
+- 👋 Hi, I’m @Techpreneur76
 - 👀 I’m interested in Technopreneurship
 - 🌱 I’m currently learning how to program for mostly E-commerce purpose
 - 💞️ I’m looking to collaborate on creating new products to sell in the market with the niche on E-commerce
